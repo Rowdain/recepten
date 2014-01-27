@@ -3,3 +3,4 @@ van Piet
 toen hij nog bij VTM werkte
 want nu werkt hij bij Vier
 en verdient veel euro's
+Wat heb je geleerd vandaag?
